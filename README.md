@@ -1,1 +1,2 @@
-# the-wedding-business
+# The Wedding Business
+Quand le comte D’Arno meurt sur le champ de bataille, il laisse derrière lui sa femme, Bianca D’Arno. Veuve à un si jeune âge et sans héritier, elle est contrainte de vivre dans la pauvreté. Mais un jour, alors qu’elle mourait de faim, elle se réveille dans le passé. Sans aucun doute, Bianca sait ce qu’il lui reste à faire pour survivre : prendre son indépendance financière avant la mort du comte ! Mais la tâche s’annonce difficile dans une société où la femme n’a pas son mot à dire…
